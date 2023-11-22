@@ -8,6 +8,7 @@ My Favorite Characters in **"The Bear"** are
 1. Carmy
 2. Sydney
 3. Terry
+   
 [The Bear Casts](https://collider.com/the-bear-cast-character-guide-jeremy-allen-white/)
 
 And for **"Cyberpunk Edgerunners"** are
@@ -15,6 +16,7 @@ And for **"Cyberpunk Edgerunners"** are
 2. Gloria
 3. Ripperdoc
 4. Lucy
+   
 [Cyberpunk Edgerunners Characters](https://gamerant.com/strongest-characters-cyberpunk-edgerunners/)
 
 
