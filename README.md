@@ -10,6 +10,8 @@ My Favorite Characters in **"The Bear"** are
 2. Sydney
 3. Terry
    
+![carmy](https://github.com/Kotaro1201/app-dev/assets/151726540/96e51d01-5e80-46ab-981e-603946bec998)
+
 [The Bear Casts](https://collider.com/the-bear-cast-character-guide-jeremy-allen-white/)
 
 And for **"Cyberpunk Edgerunners"** are
@@ -20,5 +22,6 @@ And for **"Cyberpunk Edgerunners"** are
    
 [Cyberpunk Edgerunners Characters](https://gamerant.com/strongest-characters-cyberpunk-edgerunners/)
 
+![david martinez](https://github.com/Kotaro1201/app-dev/assets/151726540/ce7f63f5-6a2c-45d6-91d9-a88203494531)
 
-![carmy](https://github.com/Kotaro1201/app-dev/assets/151726540/93b259f5-0d2f-42c3-9eb1-9d7d1cf83353)
+
